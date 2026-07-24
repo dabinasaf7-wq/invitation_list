@@ -1,0 +1,1 @@
+Address corrected to گەڕەکی کوران.
